@@ -1,1 +1,1 @@
-# DIVULGA-O
+# DIVULGAÇÃO
